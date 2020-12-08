@@ -1,0 +1,1 @@
+put the milk,sygar,cornflour in a bowl and then mix them well,now cook it till it becomes thick,now cool it down to a room temprature,add the milk powder,now blend it after a bit add vanilla extract and blend again and the final step refrigerate form overnight and now your vanilla ice-cream is complete
